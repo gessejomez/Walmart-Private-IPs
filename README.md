@@ -1,5 +1,1 @@
-# Walmart
 
-Fuck walmart!
-
-Assholes.
